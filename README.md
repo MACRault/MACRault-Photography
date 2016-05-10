@@ -1,3 +1,0 @@
-# MACRault-Photography
-test
-test
